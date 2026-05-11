@@ -1,4 +1,4 @@
-# 
+# best Figma for macOS Preset | color correction + cloud sync offers the most advanced Figma for macOS preset, with color correction and cloud sync. Ideal for professional designers
 
 
 
